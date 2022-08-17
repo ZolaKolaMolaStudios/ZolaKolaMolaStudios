@@ -2,7 +2,7 @@
 - 👀 I’m interested in money
 - 🌱 I’m currently learning how to make money
 - 💞️ I’m looking to collaborate on money making schemes
-- 📫 How to reach me patreon.com/ZolaKolaMolaStudios
+- 📫 Reach me on patreon.com/ZolaKolaMolaStudios
 
 <!---
 ZolaKolaMolaStudios/ZolaKolaMolaStudios is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
